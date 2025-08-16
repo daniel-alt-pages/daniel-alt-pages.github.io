@@ -1,1 +1,0 @@
-# daniel-alt-pages.github.io
